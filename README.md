@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @22hideki22
+-  Im ACE builder, Video Editor, Camera man, Owner of Playground Server, and Creator of Hideki-Palett.
+-  I like Create Things, Love Military and Computer Build.
+-  If you Want Add me on steam, Comment in Some Of My videos in youtube.
+-  
